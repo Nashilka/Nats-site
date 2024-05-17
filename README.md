@@ -11,9 +11,7 @@ and it's the weekend thank god I hate google love technology and love making thi
 
 Oh yeah by the way thanks for visiting ❤️❤️❤️
 
-https://github.com/Nashilka/Nats-site/assets/155579485/cf60d887-c4f1-4687-a56f-660dee3dbd1b
-
-
+<a href="https://github.com/Nashilka/Nats-site/assets/155579485/093f4f6b-b8e5-4e25-981e-781517abbb36">SAMURAI CAT</a>
 
 
 
